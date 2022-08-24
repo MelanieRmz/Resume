@@ -10,3 +10,5 @@ Sourcing qualified candidates from professional sites such as LinkedIn, and sele
 Scheduling interviews, preparing and debriefing candidates before the interview with clients.
 Interview candidates in order to validate the English level, and experience required for the position.
 Searching alternative ways of recruiting and job postings.
+
+WEB3 Enthusiat!
