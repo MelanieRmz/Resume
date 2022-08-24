@@ -11,4 +11,4 @@ Scheduling interviews, preparing and debriefing candidates before the interview 
 Interview candidates in order to validate the English level, and experience required for the position.
 Searching alternative ways of recruiting and job postings.
 
-WEB3 Enthusiat!
+WEB3, Etherium and Blockchain Enthusiat!
